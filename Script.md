@@ -22,6 +22,7 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 George met the Unicorn King who granted him magic powers. Just kidding the kid only saw the Zookeeper taking care of the animals and decided that his life was so boring that he needed to create a fantastical story about nothing.
+George met the Unicorn King who granted him magic powers. Just kidding it was the Zookeeper and he accidentally left the door open. Whoops!
 The end.
 
 ## Cast
